@@ -8,7 +8,7 @@
 
 Description.
 
-> **Title:**  / **Featuring:** 
+> **Title:** Edger / **Featuring:** MOTHNODE
 
 > **Production:**  / **Lyrics:** 
 
