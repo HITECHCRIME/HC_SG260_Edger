@@ -10,7 +10,7 @@ Description.
 
 > **Title:** Edger / **Featuring:** MOTHNODE
 
-> **Production:**  / **Lyrics:** 
+> **Production:**  / **Lyrics:** MOTHNODE
 
 > **Beat:**
 
